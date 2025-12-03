@@ -38,7 +38,7 @@ Jurusan MIPA (Matematika dan Ilmu Pengetahuan Alam)
   <a href="https://www.instagram.com/p/DDty9dTzFAz/?img_index=7">Klik di sini</a>
 - **Activities:** Over 300+ Activities (2023–2025)  
   <a href="https://drive.google.com/file/d/1gZ44JBXVFmqXbaxbc2P191SJw6ccittX/view?usp=sharing">Klik di sini</a>
-- **Learning Activities:** Samsung Innovation Campus (SIC) (2025)  
+- **Learning Activities:** Samsung Innovation Campus / SIC (2025)  
   <a href="https://drive.google.com/file/d/1WPpQrRENaBNTjwX4jR_seXdMTiPPija0/view?usp=sharing">Klik di sini</a>
 
 
